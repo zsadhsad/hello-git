@@ -12,6 +12,4 @@ sa
 dsa
 
 
-
-
-amk 
+bunu yazan tosun okuyana koysun sen daha toysun xd xd xfd
